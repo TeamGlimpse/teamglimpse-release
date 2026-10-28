@@ -1,1 +1,1 @@
-Visit https://activitypulse.dev
+Visit https://teamglimpse.com
